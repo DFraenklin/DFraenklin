@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DFraenklin
+- 👀 I’m interested in music production, video content creation, AI technology, open source, life-hacks, Buddhism, queer visibility, and other things.
+- 🌱 I’m currently learning how to create my own hosted LLM chatbot that can run without limits.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me fraenklin@live.com
+- 😄 Pronouns: Generally he/him, but at time her/she and even they/them (IN the plural) - but please call me what you want, as long as you're calling!
+- ⚡ Fun fact: I lived the van life, then the truck-house life, and then the skoolie life, and then the RV life for 7 years of my life-life.
